@@ -1,6 +1,6 @@
 ### Hi there, 👋
 
-**Welcome to my GitHub profile...Thanks for stopping by. 
+**Welcome to my GitHub profile...Thanks for stopping by.** 
 
 #### About Me 💻 📊
 
